@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TechNerd010
-- 👀 I’m interested in 3D Desing Homeassistant Smarthome
+- 👀 I’m interested in 3D Desing, Homeassistant, Smarthome
 - 🌱 I’m currently learning Nothing xD
 - 💞️ I’m looking to collaborate on Not shure now
 - 📫 How to reach me Github 
